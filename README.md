@@ -1,4 +1,4 @@
-## I'am Cristene Joy C. Baldapan a BSIS Student in Davao Del Norte State College
+## I'm Cristene Joy C. Baldapan a BSIS Student in Davao Del Norte State College
 
 <!--
 **tenee-tech/tenee-tech** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
